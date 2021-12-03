@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BodhiLandryStahl
+- 👋 Hi, I’m @Bodhi
 - 👀 I’m interested in web3, permaculture, and mindfulnessbased stress reduction.
 - 📫 How to reach me bodhilstahl@gmail.com
 
